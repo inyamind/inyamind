@@ -13,4 +13,3 @@ eat my balls
   - buy me vbux pwease 🥺🥺🥺
   - 11 years old
   - Vaping in school bathrooms 😎😎
-  
