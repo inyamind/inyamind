@@ -1,16 +1,17 @@
-### Hi there 👋
 
-<!--
-**inyamind/inyamind** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+i love u
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<a href="https://discord.com/users/863142225210507294">
+  <img src="https://lanyard-profile-readme.vercel.app/api/173617721102041090?hideTimestamp=true&idleMessage=Just%20chillin'%20at%20the%20moment..." align="right" />
+</a>
+
+- 🖥️ Hhaking Language 😈😈😈
+  - 11 years of life experience :D 
+  - Vaping in school bathrooms 😎😎
+
+- 🛠 Experience:
+  - Grade 6 
+  - roblox hug rp is my favourite rp
+  - buy me vbux pwease 🥺🥺🥺
